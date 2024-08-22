@@ -1,5 +1,7 @@
 ![](https://media.tenor.com/biwjOposvx4AAAAM/ritsu-sakuma-ensemble.gif)
 
+##˚ʚ♡ɞ˚  "  boas vindas  "
+
 <!--
 **maria-clara666/maria-clara666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
