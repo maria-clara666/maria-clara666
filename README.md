@@ -14,9 +14,9 @@ meu nome é maria clara , essa conta será focada em estudos e projetos da escol
 
 ‍
 
-   ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
+  ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
    ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉
-       ୨୧ ꒰ ──★ sobre mim ! ꒱ ୨୧
+ ୨୧ ꒰ ──★ sobre mim ! ꒱ ୨୧
   *   Eu sou uma artista e comecei a me interessar um pouquinho por programação recentemente, por isso, meus projetos podem não serem ''perfeitos''
  * Além de desenhar , gosto muito de ler e escrever  
                            ♡ˊˎ-
