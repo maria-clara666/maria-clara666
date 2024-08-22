@@ -1,4 +1,4 @@
-![](https://media.tenor.com/biwjOposvx4AAAAM/ritsu-sakuma-ensemble.gif) ![](![image](https://github.com/user-attachments/assets/0e2d36b5-341f-4043-9b26-e66cb9207c3e)
+![](https://media.tenor.com/biwjOposvx4AAAAM/ritsu-sakuma-ensemble.gif) ![](https://64.media.tumblr.com/9693f983a7553d2b9184644b55916b78/tumblr_mpd4ohWs1P1r308exo1_250.gif)
 )
 
 #   ˚ʚ♡ɞ˚  "  boas vindas  "
