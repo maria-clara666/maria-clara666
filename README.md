@@ -1,4 +1,4 @@
-![](https://media.tenor.com/biwjOposvx4AAAAM/ritsu-sakuma-ensemble.gif) ![](https://media.tenor.com/rE3c9r2MnCsAAAAi/konata-dance.gif)
+![](https://media.tenor.com/biwjOposvx4AAAAM/ritsu-sakuma-ensemble.gif) ![](https://img1.picmix.com/output/stamp/thumb/3/9/3/4/1854393_182a2.gif)
 
 #   ˚ʚ♡ɞ˚  "  boas vindas  "
 
