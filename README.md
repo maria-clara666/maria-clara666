@@ -1,4 +1,4 @@
-## Hi there 👋
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fsakuma-ritsu-ritsu-sakuma-enstars-lovi-ensemble-stars-gif-22874869&psig=AOvVaw198wmMcbisvuWUH5udWHAf&ust=1724453171888000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCLjqt-nWiYgDFQAAAAAdAAAAABAc)
 
 <!--
 **maria-clara666/maria-clara666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
